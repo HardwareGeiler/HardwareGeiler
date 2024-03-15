@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @HardwareGeiler
+- 👀 I’m interested in PC Tweaking and Hardware
+- 🌱 I’m currently learning Batch Script
+- 📫 How to reach me Discord: HardwareGeiler
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: Cats are believed to be the only mammals who don't taste sweetness
